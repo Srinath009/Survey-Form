@@ -15,4 +15,4 @@ Branch name
 
 Recommended by whom ?
 
-Favourite things about college.
+Favourite things about college
